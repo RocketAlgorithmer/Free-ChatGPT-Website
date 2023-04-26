@@ -4,10 +4,10 @@
 
 **分享站点**、**站点失效**、**标注错误**，请[🌺点此🌺](https://github.com/xx025/carrot/issues)
 
-<a href="https://day0424.ai55.cc/url/?id=ZkxaWS8vV081WG1RdEJIbmN1NWNsMFpRT3FGU01GcmpRUC8zZG5mc0g0QT0=" target="_blank" style="color: black">
-<img src="https://st.ai55.cc/ads/vip.xcbl.vip.jpg" alt="Ad" style="height: 80px !important;width: auto !important;" >
+<a href="https://www.google-hub.com" target="_blank" style="color: black">
+<img src="https://www.google-hub.com/images/google-search.png" alt="Ad" style="height: 80px !important;width: auto !important;" >
 <br>
-👆 https://gpt.lbb.ai/ [广告]
+👆https://www.google-hub.com
 </a>
 
 ---
