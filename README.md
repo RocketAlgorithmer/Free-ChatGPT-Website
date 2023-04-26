@@ -7,7 +7,7 @@
 <a href="https://www.google-hub.com" target="_blank" style="color: black">
 <img src="https://www.google-hub.com/images/google-search.png" alt="Ad" style="height: 80px !important;width: auto !important;" >
 <br>
-👆https://www.google-hub.com
+👆谷歌学术-谷歌hubhttps://www.google-hub.com
 </a>
 
 ---
